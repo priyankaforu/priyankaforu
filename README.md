@@ -4,6 +4,7 @@
 - 🫣 FYI: I can speak English at C1, German at A2 level and still trying master German Language!
 - 📧 If you are interested to get in touch with me, drop down your message here at priyankapudi4u@gmail.com
 - 😄 Pronouns: ...She/Her
+- 🫤 Don't open [this](https://priyankapudi.com)
 
 
 <!---
