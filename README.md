@@ -1,4 +1,4 @@
-# Heyy, thanks for stopping by
+# Hey, welcome to my github
 
 I like to break things apart, read how they work, and build them back up. Learning by doing is how everything clicks for me.
 
