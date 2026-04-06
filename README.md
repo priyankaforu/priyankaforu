@@ -1,4 +1,4 @@
-# Hey, I'm Priyanka
+# Heyy, thanks for stopping by
 
 I like to break things apart, read how they work, and build them back up. Learning by doing is how everything clicks for me.
 
